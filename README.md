@@ -1,1 +1,0 @@
-# ondrej_balun_master_thesis_celegans
